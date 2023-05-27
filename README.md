@@ -1,1 +1,2 @@
 # test-1
+Bienvenue à l'école d'anglais qui vous fait réellement progresser. Conçus pour être les meilleurs, par les meilleurs, nos professeurs hautement qualifiés, nos conseillers personnels, nos cours immersifs et notre méthode reconnue vous garantissent des résultats, que vous appreniez en ligne, en présentiel ou les deux.
